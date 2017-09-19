@@ -8,9 +8,13 @@ As pessoas mais felizes não se preocupe muito sobre se a vida é razoável ou n
 
 ## Frases Legais
 
-Elaborar o ideal mensagem não é demorado, uma vez que você reunir seus sentimentos antes do tempo e tome alguns momentos para considerar o que você quer escrever. Para obter uma vida completa, que você precisa para ser feliz, com saúde e felicidade andam juntos. **A coisa boa é que é sempre possível fazer mais do que o seu melhor. Mantenha a sua alegria perto de você, pois o amor não vai deixar você.**
+Elaborar o ideal mensagem não é demorado, uma vez que [Militar](http://www.militar.com.br/blog37047-Frases-para-status-Veja-os-Status-para-Whatsapp-VEJA-MAIS) você reunir seus sentimentos antes do tempo e tome alguns momentos para considerar o que você quer escrever. 
 
-Semelhantes coisas aconteceram na hora certa de Jesus, também, Mr. Thomas afirmou. Espero que tenha gostado da leitura de cada um desses muito bom dia mensagens. Dentro deste post, é provável que você leia o maior bom dia mensagens!! Em seguida, no entanto, você não terá a frases para status habilidade de voltar no momento.
+Para obter uma vida completa, que você precisa para ser feliz, com saúde e felicidade andam juntos. **A coisa boa é que é sempre possível fazer mais do que o seu melhor. Mantenha a sua alegria perto de você, pois o amor não vai deixar você.**
+
+Semelhantes coisas aconteceram na hora certa de Jesus, também, Mr. Thomas afirmou. Espero que tenha gostado da leitura de cada um desses muito bom dia mensagens. 
+
+Dentro deste post, é provável que você leia o maior bom dia mensagens!! Em seguida, no entanto, você não terá a frases para status habilidade de voltar no momento.
 
 Enquanto é um excelente momento para receber, juntamente com seus entes próximos e queridos, algumas pessoas vivem longe de suas casas. Depois de todo esse momento, permanecem incrível para mim.
 
